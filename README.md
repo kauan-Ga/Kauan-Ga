@@ -1,16 +1,17 @@
-## Hi there 👋
+## eu sou o cladinho boas vindas ao meu perfil
 
-<!--
-**kauan-Ga/Kauan-Ga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**kauan-Ga/Kauan-Ga** sou eu haha
+aqui esta uns dos meus seriços
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+- 🔭 ja trabalhei na microsoft,sou irmão do Ellon munsk
+- 🌱 minhas sementes favoritas são as de melão
+- 👯 sei dançar break e forró
+- 🤔 sabe quentos anos eu tenho????? pse nem eu 
+- 💬 meu discord ai ó : KgxS2 
+- 📫 sei ler e não sou analfabeto obr
+- 😄 proomes: ele/DELAS rsrsrs
+- ⚡ Atleta profissional de badminton e hoquei na grama
+![](https://tenor.com/pt-BR/view/pessi-gif-21021529)
+
